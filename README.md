@@ -1,1 +1,1 @@
-# rsschool-cv
+># Igor Mychko
